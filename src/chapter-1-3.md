@@ -1,5 +1,3 @@
-Brief History of Digital Nomadism
-===============================================
 
 The digital nomad lifestyle has gained popularity in recent years, offering individuals the opportunity to work remotely while traveling and experiencing different cultures. In this introduction, we will provide a brief history of digital nomadism.
 

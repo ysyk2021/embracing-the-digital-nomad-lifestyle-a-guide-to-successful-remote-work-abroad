@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Challenges to Digital Nomadism
-====================================================
 
 Digital nomadism is not all fun and games. There are many challenges that come with this lifestyle, and it's important to address them in order to succeed as a remote worker abroad. This chapter will explore some of the most common challenges faced by digital nomads and provide tips on how to overcome them.
 
