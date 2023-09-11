@@ -1,5 +1,4 @@
-Chapter 9: Incorporating Self-Care and Wellness Practices
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining a healthy work-life balance and prioritizing self-care is essential for digital nomads to sustain a successful and fulfilling remote work abroad experience. In this chapter, we will explore the importance of self-care and wellness practices and provide valuable insights on how to incorporate them into your digital nomad lifestyle.
 

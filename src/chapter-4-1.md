@@ -1,5 +1,4 @@
-Chapter 4: Choosing the Right Location and Accommodations
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Selecting the ideal location and accommodations is a pivotal step in embracing the digital nomad lifestyle successfully. In this chapter, we will delve into the factors to consider and strategies to ensure you make informed choices that enhance your remote work experience abroad.
 

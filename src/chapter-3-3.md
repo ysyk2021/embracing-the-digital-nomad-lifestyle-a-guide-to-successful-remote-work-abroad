@@ -1,7 +1,6 @@
 Certainly! Here's a Markdown-formatted chapter on "Advantages and Disadvantages of Remote Work" for the book "Embracing the Digital Nomad Lifestyle: A Guide to Successful Remote Work Abroad."
 
-Chapter 2: Advantages and Disadvantages of Remote Work
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore the pros and cons of remote work, helping you understand both the benefits and challenges that come with embracing the digital nomad lifestyle.
 

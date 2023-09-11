@@ -1,5 +1,4 @@
-Chapter 10: Potential Developments in Remote Work and Technology
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The world of remote work is constantly evolving, driven by advancements in technology, changing workplace dynamics, and global events. In this chapter, we will explore some potential developments and trends that may shape the future of remote work for digital nomads.
 

@@ -1,5 +1,4 @@
-Chapter 11: Evolving Attitudes Towards Digital Nomadism and Remote Work
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The concept of digital nomadism and remote work has evolved significantly in recent years, driven by changing societal attitudes and global events. In this chapter, we will explore the shifting perspectives and attitudes surrounding the digital nomad lifestyle and remote work.
 

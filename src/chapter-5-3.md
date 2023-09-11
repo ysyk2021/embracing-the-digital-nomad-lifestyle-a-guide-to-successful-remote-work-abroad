@@ -1,5 +1,4 @@
-Chapter 8: Managing Communication and Availability
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication and availability management are essential skills for digital nomads navigating remote work abroad. In this chapter, we will explore strategies and best practices for staying connected with colleagues, clients, and loved ones while maintaining a healthy work-life balance.
 

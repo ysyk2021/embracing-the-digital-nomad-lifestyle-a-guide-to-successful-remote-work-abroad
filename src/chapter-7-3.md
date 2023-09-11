@@ -1,7 +1,6 @@
 Certainly, here's a Markdown-formatted chapter on "Implications for the Future of Work" for the book "Embracing the Digital Nomad Lifestyle: A Guide to Successful Remote Work Abroad."
 
-Chapter 6: Implications for the Future of Work
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the rapidly evolving landscape of work, the digital nomad lifestyle is not merely a trend but a significant signpost of what the future of work might hold. In this chapter, we will explore the implications of the digital nomad lifestyle on the future of work, including its impact on traditional office culture, employment models, and the global workforce.
 

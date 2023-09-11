@@ -1,7 +1,6 @@
 Certainly! Here's a Markdown-formatted chapter on "Creating a Conducive Workspace While Traveling" for the book "Embracing the Digital Nomad Lifestyle: A Guide to Successful Remote Work Abroad."
 
-Chapter 5: Creating a Conducive Workspace While Traveling
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the previous chapters, we've explored the exciting world of digital nomadism and how to kickstart your remote work journey. Now, let's dive into a critical aspect of remote work -- creating a workspace that fosters productivity and allows you to thrive while on the move.
 

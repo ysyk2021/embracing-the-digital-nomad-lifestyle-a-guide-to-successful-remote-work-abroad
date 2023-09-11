@@ -1,5 +1,4 @@
-Chapter 10: Dealing with Burnout and Overwork
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of the digital nomad lifestyle and remote work success, it's crucial to address the ever-present risk of burnout and overwork. This chapter explores the signs, causes, and strategies to combat burnout and maintain a healthy work-life balance while thriving in your remote work abroad.
 

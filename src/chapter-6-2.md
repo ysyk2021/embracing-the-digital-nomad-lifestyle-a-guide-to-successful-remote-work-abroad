@@ -1,5 +1,4 @@
-Chapter 7: Managing Isolation and Loneliness
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embracing the digital nomad lifestyle comes with numerous advantages, but it can also bring feelings of isolation and loneliness. In this chapter, we explore strategies and insights to help you navigate and manage these challenges while thriving in your remote work abroad.
 

@@ -1,5 +1,4 @@
-Chapter 6: Managing Finances and Budgeting
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively managing your finances and budgeting is a fundamental aspect of the digital nomad lifestyle. In this chapter, we will explore strategies and tips to help you maintain financial stability and make the most of your resources while embracing remote work abroad.
 

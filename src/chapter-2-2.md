@@ -1,5 +1,4 @@
-Chapter 3: Characteristics of Successful Digital Nomads
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embracing the digital nomad lifestyle requires more than just remote work skills; it demands a unique set of characteristics and traits that empower individuals to thrive in a nomadic, work-from-anywhere environment. In this chapter, we will explore the essential qualities that define successful digital nomads.
 

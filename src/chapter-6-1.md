@@ -1,5 +1,4 @@
-Chapter 8: Addressing Technological Challenges
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The digital nomad lifestyle heavily relies on technology, making it essential to address and overcome the technological challenges that may arise. In this chapter, we will explore common issues digital nomads face and provide strategies for tackling them effectively.
 

@@ -1,5 +1,4 @@
-Chapter 5: Establishing a Routine and Schedule
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a structured routine and schedule is a key element of success for digital nomads embarking on the remote work abroad journey. In this chapter, we will explore the importance of establishing a routine, offer strategies for doing so, and provide tips for maintaining productivity and work-life balance.
 

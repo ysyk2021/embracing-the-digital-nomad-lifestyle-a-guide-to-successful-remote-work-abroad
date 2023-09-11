@@ -1,5 +1,4 @@
-Chapter 7: Navigating Legal and Cultural Differences
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The digital nomad lifestyle offers incredible opportunities for remote work abroad, but it also brings forth unique challenges related to legal and cultural differences. In this chapter, we will explore how to effectively navigate these differences to ensure a successful and harmonious experience as a digital nomad.
 

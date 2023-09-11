@@ -1,7 +1,6 @@
 Certainly! Here's a Markdown-formatted chapter on "Maximizing Productivity While Enjoying Travel Experiences" for the book "Embracing the Digital Nomad Lifestyle: A Guide to Successful Remote Work Abroad."
 
-Chapter 7: Maximizing Productivity While Enjoying Travel Experiences
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the greatest perks of the digital nomad lifestyle is the opportunity to explore new places and cultures. In this chapter, we'll explore how you can balance work and leisure to maximize productivity while savoring your travel experiences.
 
